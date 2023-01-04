@@ -19,3 +19,10 @@ https://facebook.com/xshirozone
 และมีโอกาสโดนแบนสูงมากๆ ใครที่ได้มา โปรดเอาไปใส่ตัวไก่เลยทันทีเพื่อความปลอดภัยของคุณ
 
 ![image](https://user-images.githubusercontent.com/52291809/210498721-69e02fed-48cc-4073-b824-8c8596f69f57.png)
+
+# ระวังโดนกันด้วยนะครับ และก็สำหรับใครมองหาร้านปั้มเพชร หรือการันตี Unique ก็ขอแนะนำ
+xShiroZone เลยนะครับผม https://facebook.com/xshirozone
+
+![image](https://user-images.githubusercontent.com/52291809/210499086-b74bd56e-3fdd-45c3-b78b-a58b807c9e7f.png)
+![image](https://user-images.githubusercontent.com/52291809/210499099-70fd2222-9cf3-4837-bbc2-ac0ca8ab4cd8.png)
+![image](https://user-images.githubusercontent.com/52291809/210499110-d0cf22fe-d182-4199-95b3-92c9f458bdfe.png)
