@@ -3,7 +3,7 @@
 อย่าลืมไปจ้างฟามร้าน xShiroZone ของผมด้วยล่ะ
 https://facebook.com/xshirozone
 
-// วิธีการเช็ค ให้ไปที่ไฟล์ List name Leaderboard.lua
+// วิธีการเช็ค ให้ไปที่ไฟล์ [List Name Leaderboard.lua](https://github.com/x2Swiftz/List-Leaderboard/blob/main/List%20Name%20Leaderboard.lua)
 
 จากนั้นให้กด Crtl + F และใส่เลข Profile Roblox ของคนนั้นๆไป
 
